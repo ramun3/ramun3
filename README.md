@@ -8,6 +8,8 @@ HELOO!! MY NAME IS MIKO!! CALL ME MIKO OR MARI, ANYTHING IS FINE!
 DNI: Shadaria, Sonails, Sark, any ships that involves child x adult (proshippers included..)   
       
 I go to people randomly since I really need cuds/hugs cuz im a very clingy person! / sometimes upset/uncomfortable, (srry if i bother you !)    
+
+Pls dont ask personal questions like; "how old are you" it makes me get uncomfortable + im a minor !
     
 ☆*: .｡. o(≧▽≦)o .｡.:*☆ 
 
