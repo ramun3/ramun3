@@ -27,18 +27,18 @@
                                       
                                         
                                      
-                               I am somewhat a clingy person, so dont hesitate to c+h with me!  
+                                      I am somewhat a clingy person, so dont hesitate to c+h with me!  
   
  
 
-          
-                                     sign my ata! 
+                                                       sign my ata! 
   
-                                           amy and sonic kin!! >0< .☘︎ ݁˖   
+                                                    amy and sonic kin!! >0< .☘︎ ݁˖   
   
  
   
-                            DNI:  Shadaria shippers, Sonails shippers, and ships that includes child x adult! (darkshippers, proshippers) //   
+                                     DNI:  Shadaria shippers, Sonails shippers, and ships that includes child x adult! (darkshippers, proshippers) //   
 
      
-                                thats all :3 !!
+                                 
+                                    thats all :3 !!
