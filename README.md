@@ -37,7 +37,7 @@
   
  
   
-                                     DNI:  Shadaria shippers, Sonails shippers, and ships that includes child x adult! (darkshippers, proshippers) //   
+                                     DNI:  Shadaria shippers, Sonails shippers, and ships that includes child x adult! //   
 
      
                                  
