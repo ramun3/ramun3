@@ -35,6 +35,8 @@
   
                                                     amy and sonic kin!! >0< .☘︎ ݁˖   
   
+  
+                                     discord: .mko_
  
   
                                      DNI:  Shadaria shippers, Sonails shippers, and ships that includes child x adult! //   
