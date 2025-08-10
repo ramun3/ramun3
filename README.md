@@ -34,6 +34,9 @@
                                                        sign my ata! 
   
                                                     amy and sonic kin!! >0< .☘︎ ݁˖   
+                                                     
+ 
+                                                    discord!! [ : .mko_   <3 ]
   
  
   
