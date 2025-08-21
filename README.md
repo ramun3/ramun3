@@ -2,15 +2,15 @@
 
                                                                     
  
-                                              " You    know     where    to      find      me     - "        
+                                        " You    know     where    to      find      me     - "        
  
            
-                               .𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁  
+                        .𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁ ˖𓂃.☘︎ ݁˖.𖥔 ݁  
    
                                                 ᯓᡣ𐭩   call me miko / mari !! <3   
 
                                        
-                                            mostly at the STH area with friends!
+                                               mostly at the STH area with friends!
       
 
                                      
