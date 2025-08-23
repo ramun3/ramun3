@@ -51,7 +51,7 @@
   
  
   
-                                     DNI:  Shadaria shippers, Sonails shippers, and ships that includes child x adult! //   
+                                     DNI:  Shadaria shippers, Sonails shippers, and ships that includes child x adult, racist, sexist, and any behavior that includes weirdos/inappropriate.. (it makes me uncomfortable.)
 
      
                                  
