@@ -37,15 +37,14 @@
   
  
 
-                                                       sign my ata! 
+                                      sign my ata! 
   
-                                                    amy and sonic kin!! >0< .☘︎ ݁˖   
+                                     amy and sonic kin!! >0< .☘︎ ݁˖   
                                                      
  
-                                                    discord!! [ : .mko_   <3 ] 
+                                     discord!! [ : .mko_   <3 ] 
                                                       
  
-                                     online 24/7!! :P  
  
                                       
                                     BIRTHDAYY!! : 13/1
