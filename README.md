@@ -27,7 +27,13 @@
                                       
                                         
                                      
-                                      I am somewhat a clingy person, so dont hesitate to c+h with me!  
+                                      I am somewhat a clingy person, so dont hesitate to c+h with me!     
+   
+ 
+                                    
+                                   ⛔: AFK, NO RESPONSE, SLEEPING. 
+                                   🌙: S-AFK, DRAWING, WATCHING TIKTOK, STUDYING OR DOING HOMEWORK, SLOW RESP. 
+                                   🟢: RESPONSIVE (kinda), ACTIVE.
   
  
 
