@@ -32,7 +32,7 @@
  
                                     
                                    ⛔: AFK, NO RESPONSE, SLEEPING. 
-                                   🌙: S-AFK, DRAWING, WATCHING TIKTOK, STUDYING OR DOING HOMEWORK, SLOW RESP. 
+                                   🌙: S-AFK, DRAWING, WATCHING TIKTOK, STUDYING OR DOING HOMEWORK, PLAYING OUTCOME MEMORIES, SLOW RESP. 
                                    🟢: RESPONSIVE (kinda), ACTIVE.
   
  
@@ -51,7 +51,7 @@
   
  
   
-                                     DNI:  Shadaria shippers, Sonails shippers, and ships that includes child x adult, racist, sexist, and any behavior that includes weirdos/inappropriate.. (it makes me uncomfortable.)
+                                     DNI:  Shadaria shippers, Sonails shippers, and ships that includes child x adult, racist, sexist, and any behavior that includes weirdos/inappropriate..
 
      
                                  
