@@ -32,8 +32,8 @@
  
                                     
                                    ⛔: AFK, NO RESPONSE, SLEEPING. 
-                                   🌙: S-AFK, DRAWING, WATCHING TIKTOK, STUDYING OR DOING HOMEWORK, PLAYING OUTCOME MEMORIES, SLOW RESP. 
-                                   🟢: RESPONSIVE (kinda), ACTIVE.
+                                   🌙: MOSTLY ACTIVE / S-AFK, DRAWING, WATCHING TIKTOK, STUDYING OR DOING HOMEWORK, PLAYING OUTCOME MEMORIES, SLOW RESP. 
+                      
   
  
 
