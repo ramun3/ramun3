@@ -47,7 +47,10 @@
  
  
                                       
-                                    BIRTHDAYY!! : 13/1
+                                    BIRTHDAYY!! : 13/1 
+ 
+ 
+                                    online during friday and the weekends, sometimes on school week if i have any hw/studying to do at 9pm to 10pm !
   
  
   
