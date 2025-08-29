@@ -31,8 +31,8 @@
    
  
                                     
-                                   ⛔: AFK, NO RESPONSE, SLEEPING. 
-                                   🌙: MOSTLY ACTIVE / S-AFK, DRAWING, WATCHING TIKTOK, STUDYING OR DOING HOMEWORK, PLAYING OUTCOME MEMORIES, SLOW RESP. 
+                                   ⛔: AFK, NO RESPONSE, SLEEPING. PLAYING ROBLOX W FRIENDS / OUTCOME MEMORIES
+                                   🌙: MOSTLY ACTIVE / S-AFK, DRAWING, WATCHING TIKTOK, STUDYING OR DOING HOMEWORK, SLOW RESP. 
                       
   
  
