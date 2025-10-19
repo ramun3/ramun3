@@ -13,7 +13,11 @@ HELOOO!!! :DD
 
   w2i bcz im sometimes mostly afk! either playing OM, doing hw, showering, or sleeping! and i wouldent be able to see your text if its not in whisper.  
 
-   im a clingy type of person, i would mostly be with my friends or i would go to random people and cuddle + hide with them. sorry if im bothering! 
+   im a clingy type of person, i would mostly be with my friends or i would go to random people and cuddle + hide with them. sorry if im bothering!       
+
+   .mko_ | <-- discord!  
+
+   sign my ata ! :D
 
   (basic DNI) 
    - pedophiles  
