@@ -21,7 +21,7 @@ HELOOO!!! :DD
    - sexist
    - proshippers
    - etc...  
-   - most importantly, sark supporters. (you disgust me..)
+   - most importantly, sarklings/sark supporters. (you disgust me..)
 
 
         i LOVE making new friends but sometimes im shy to int with them 💔💔 
