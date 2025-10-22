@@ -33,8 +33,8 @@ HELOOO!!! :DD
         i would be appreciated if you interact with me first! 
 
 
-       DNI.
-      if your user/name is Sherry, Aiko or Ramen, pls dni. those three made alot of trouble and trauma in my life. and i dont want to get reminded again. 
+       HEAVY DNI.
+      if your user/name is Sherry, Aiko, Amira or Ramen, pls dni. those three made alot of trouble and trauma in my life. and i dont want to get reminded again. 
 
 
      THATS ALL!!! BEYBEYEBEYBYEE :DD  
