@@ -34,7 +34,7 @@ HELOOO!!! :DD
 
 
        HEAVY DNI.
-      if your user/name is Sherry, Aiko, Amira or Ramen, pls dni. those three made alot of trouble and trauma in my life. and i dont want to get reminded again. 
+      if your user/name is Sherry, Aiko, Amira or Ramen, pls dni. those four made alot of trouble and trauma in my life. and i dont want to get reminded again. 
 
 
      THATS ALL!!! BEYBEYEBEYBYEE :DD  
