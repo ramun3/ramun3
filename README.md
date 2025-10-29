@@ -9,7 +9,7 @@ HELOOO!!! :DD
 
    mind you im sometimes very hyper! if i dont respond with a message like: "HIIEIIHEIHIEIHIE!!!" means im clearly out of energy and not in my hyper self. thats when my messages are short and dry!  
 
-  dont be/make NSFW near me unless friends (cuz ik they are just joking, but if i dont know you , i wont know if your joking or not!) - im a minor.   
+  dont be/make nsfw jokes! - im a minor.   
 
   w2i bcz im sometimes mostly afk! either playing OM, doing hw, showering, or sleeping! and i wouldent be able to see your text if its not in whisper.  
 
