@@ -27,7 +27,8 @@ HELOOO!!! :DD
    - etc...  
    - most importantly, sarklings/sark supporters. (you disgust me..)
 
-
+        im sometimes selectively mute, since im kinda dislexic, or either not knowing what to say.
+   
         i LOVE making new friends but sometimes im shy to int with them 💔💔 
 
         i would be appreciated if you interact with me first! 
