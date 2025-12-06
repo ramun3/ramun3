@@ -1,45 +1,46 @@
-![f13dc830547abcf5b55eb4279459bfcb](https://github.com/user-attachments/assets/aa4c0120-78d3-45be-bcd4-2741ba88c277)
+![c2cf0362e1f8792fd527f83edbf3c5e7](https://github.com/user-attachments/assets/1d19db6c-c261-45cc-b5ca-97d1256f5941)
+
+![5ca633d8449a6f895c7caf062260f8be](https://github.com/user-attachments/assets/3ac44590-b8fc-453a-bd3b-0761720833d8)
+ 
+                                             
+                                                                         ᎷᎥᏦᎧ !    <3  
+
+   ৻     ⊹        -  ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿ -        ⊹     ⊰  
 
 
-HELOOO!!! :DD  
+                                                                     discord: .mko_ !    
+                                         
+                                                                    DNI :
+                                            
+                                            
+🪷         ☆ ‿‿‿‿‿‿‿‿∘  <img width="337" height="450" alt="Screenshot 2025-12-07 000257" src="https://github.com/user-attachments/assets/8f5ce1da-9989-4825-9308-959ee37f0724" />                           ∘ ‿‿‿‿‿‿‿‿ ☆
 
- my name is Miko ! 
+                                             ꒰ა 𓂋 ໒꒱  
 
-  im either spotted as Amy, rewrite silver, or near friends!  
 
-   mind you im sometimes very hyper! if i dont respond with a message like: "HIIEIIHEIHIEIHIE!!!" means im clearly out of energy and not in my hyper self. thats when my messages are short and dry!  
 
-  dont be/make nsfw jokes! - im a minor.   
+    
+                                 ⊹   →  whisper to interact since im either afk or offtab!  
 
-  w2i bcz im sometimes mostly afk! either playing OM, doing hw, showering, or sleeping! and i wouldent be able to see your text if its not in whisper.  
 
-   im a clingy type of person, i would mostly be with my friends or i would go to random people and cuddle + hide with them. sorry if im bothering! but you may c+h with me freely!       
+   
+    
+  
+   
+                                   ˗ˏˋ ♡ ˎˊ˗  ‿‿‿‿‿‿ - c+h is always available ! <3  
 
-   .mko_ | <-- discord!  
 
    sign my ata ! :D
+  
+ 
+          
+	           	                          i am VERY nervous to interact with people, i'd appreciate if you int/approach  me first ! !   
+			 
+ before interacting im gonna lyk that i can be very dry and unresponsive sometimes if im tired/losing energy, dont know what to say, or not in the mood. or if im hyper, i will be sending typo messages/text ! 
 
-  (basic DNI) 
-   - pedophiles  
-   - racist  
-   - sexist
-   - proshippers
-   - etc...  
-   - most importantly, sarklings/sark supporters. (you disgust me..)
-
-        im sometimes selectively mute, since im kinda dislexic, or either not knowing what to say.
-   
-        i LOVE making new friends but sometimes im shy to int with them 💔💔 
-
-        i would be appreciated if you interact with me first! 
+ 
+                                        ![e661567496eb971ef140351349fd4399](https://github.com/user-attachments/assets/01178850-4d9c-4142-88ef-5b6bc106319e)
 
 
-       HEAVY DNI.
-      if your user/name is Sherry, Aiko, Amira or Ramen, pls dni. those four made alot of trouble and trauma in my life. and i dont want to get reminded again. 
-
-
-     THATS ALL!!! BEYBEYEBEYBYEE :DD  
-
-
-       
-   ![bdcf361a1c94f4f19a3e973ad99c8c13](https://github.com/user-attachments/assets/256acc44-40de-4877-a31c-4e6d7939c6b7)
+    ![c2cf0362e1f8792fd527f83edbf3c5e7](https://github.com/user-attachments/assets/1d19db6c-c261-45cc-b5ca-97d1256f5941)   
+    
